@@ -1,0 +1,1 @@
+# Hardcore-mode-doors-Github-script
